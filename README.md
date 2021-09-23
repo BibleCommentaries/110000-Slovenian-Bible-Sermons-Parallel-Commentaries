@@ -1,0 +1,1 @@
+# 110000-Slovenian-Bible-Sermons-Parallel-Commentaries
